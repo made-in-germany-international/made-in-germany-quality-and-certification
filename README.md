@@ -43,7 +43,7 @@
 
 ---
 
-## 🌟 Willkommen bei Made in Germany – Qualität und Zertifikationen
+## 🌟 Willkommen bei Made in Germany – Qualität und Zertifizierungen
 
 Herzlich willkommen auf unserer Plattform! Bei Made in Germany – Qualität und Zertifikationen dreht sich alles um höchste Standards, verlässliche Produkte und internationale Anerkennung deutscher Exzellenz. Wir zeigen, wie deutsche Qualitätsprodukte, Maschinenbau, Medizintechnik, Hightech-Lösungen, Automobilbau und nachhaltige Technologien durch Zertifizierungen, Normen und Prüfverfahren weltweit Vertrauen schaffen.
 
